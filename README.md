@@ -1,2 +1,2 @@
-# bryanmartinez1802.github.io jajJ
+# bryanmartinez1802.github.io
 Hola bellacos
